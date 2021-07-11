@@ -1,2 +1,5 @@
 # my_kinda_codes
-simple,elegant codes will be posted:)
+heya, myself @saisree-2204
+->i'm intetrested in data science and stuff.
+->currently learning MS-Excel in depth:)
+->aimin' to become a data analyst ^-^ 
